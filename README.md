@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @NathanielCrivelli
+- 👀 I’m interested in nuts
+- 🌱 I’m currently learning java
+- 💞️ I’m looking to collaborate on code lmaaoaoao
+- 📫 How to reach me omal#5652
